@@ -1,2 +1,2 @@
 # FastRashed-
-Fast Rashed Bangladesh content creator and Youtuber, blogger
+Fast Rashed Bangladesh content creator and Youtuber, blogger, Copywritter
